@@ -12,9 +12,11 @@
 반가워요! 저는 `Satellite`고, Team thePro-fessors의 리더입니다!
 
 ## 🤔 So... Who are you?
-다양한 뻘?짓으로 미래의 반짝이는 항성이 될 미래를 기다리는 학생이에요!
+다양한 뻘?짓으로 반짝이는 항성이 될 미래를 기다리는 학생이에요!
+<br/>
 언제나 불러주세요! 시간 날 때마다 답해드리고 있어요!
 
 ## ✉️ How to contact you?
 Email : Satellite4245@proton.me
+<br/>
 Instagram : hanstar1009
